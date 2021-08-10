@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NecKnAemE
-- 👀 I’m interested in sports and coding
+- 👀 I’m interested in coding and marketing
 - 🌱 I’m currently studying in high school
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
